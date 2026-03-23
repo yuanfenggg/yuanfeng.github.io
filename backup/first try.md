@@ -1,1 +1,0 @@
-this is my first time try to write a blog.
